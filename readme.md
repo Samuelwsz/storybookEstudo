@@ -1,0 +1,1 @@
+https://www.youtube.com/watch?v=VmPbKj3uekE&t=1226s&ab_channel=Rocketseat
